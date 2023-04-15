@@ -1,0 +1,4 @@
+# About me
+I was born back in *1536* in the citi of hero **Alexandria**, now **Konstantinople**.
+The ancient greeks at that time were so ancient that they not only did not know how to fly into space, but did not even notice how they drove the Tatar-Mongol yoke from their land under the leadership of the replaced commander Alexander Nevsky.
+![its me] (https://www.google.com/url?sa=i&url=https%3A%2F%2Fm.realnoevremya.ru%2Farticles%2F148638-istorik-maksim-kuzahmetov-o-mifah-presleduyuschih-napoleona&psig=AOvVaw3WHW8MFqE89eRZK3Ziihbu&ust=1681668067677000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCJC1rPO7rP4CFQAAAAAdAAAAABAE "It's me in on a hike 1812")
